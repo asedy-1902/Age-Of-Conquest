@@ -225,4 +225,4 @@ Age of Conquest is offered as a full free version for Windows, with all features
 Don’t miss out on this opportunity—download Age of Conquest today and begin your conquest for world domination!
 
 ---
-**Last updated:** 2026-11-04 16:41:58 UTC
+**Last updated:** 2026-11-04 22:17:35 UTC
